@@ -1,6 +1,6 @@
 ## **Privacy Policy**
 
-_Last Updated: 2024-10-28_
+_Last Updated: 2024-10-29_
 
 ### **1. Introduction**
 
